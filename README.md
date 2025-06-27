@@ -1,2 +1,1 @@
-# ngentotcewekmabok
-ngentotcewekmabok
+# [ngentotcewekmabok](https://ngentotcewekmabok.pages.dev)
